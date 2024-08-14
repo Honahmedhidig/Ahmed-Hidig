@@ -1,0 +1,2 @@
+# Ahmed-Hidig
+Allahu akbr
